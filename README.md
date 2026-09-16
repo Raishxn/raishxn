@@ -8,7 +8,8 @@
 
 - 🤝 I'm looking for help with **Minecraft Tech Mods like GregTech**
 
-- 📫 How to reach me **only Discord.**
+- 📫 How to reach me **only Discord and Email.**
+- **email: erickrenato2019@gmail.com**
 
 - ⚡ Fun fact **im Mechanical engineer.**
 
